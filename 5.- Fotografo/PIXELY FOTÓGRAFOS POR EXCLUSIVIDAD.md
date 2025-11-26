@@ -1,0 +1,8 @@
+PIXELY FOTÓGRAFOS POR EXCLUSIVIDAD
+Este es un método de Pixely para obtener: capacidad de trabajo (fotógrafos), portafolio (de los mismos fotógrafos) y alcance nacional. Consiste en crear una metodología de trabajo en la que contactamos a un fotógrafo por ciudad importante del Perú y le ofrecemos la exclusividad de trabajo en todos los clientes generados en su ciudad a cambio de que mantenga disponibilidad cuando dicha ciudad genere o encontremos un cliente. 
+Deberá proveernos de sus fotografías (debido a que el cliente querrá saber cómo se tomarán sus fotos) y éstas estarán bajo créditos (al pie de cada foto o vídeo). De esta forma podremos trabajar bajo un formato establecido, sin cambios drásticos en la metodología ni en el costo del servicio. 
+
+El fotógrafo deberá percibir esto como una oportunidad de aliarse a Pixely para ganar más clientes ya que cada cliente le generará un ingreso independiente y no un sueldo fijo. Por lo que el contrato de exclusividad le garantizará dicho beneficio. 
+Cada fotógrafo tendrá que llenar una ficha de registro, una cotización estándar por cada servicio que hagamos, una ficha de sus recursos fotográficos y su portafolio. 
+Pixely trabaja bajo el “Método Pixely” el cual tiene diversas etapas y roles, donde principalmente interviene el Fotógrafo es en la toma de recursos audiovisuales, éste recibirá una ficha por cada fotografía o vídeo, donde se indicará específicamente el resultado esperado, haciéndolo mucho más simple y automatizado. De esta manera el fotógrafo tendrá un usuario de servicio (cliente de Pixely) por el cual cobrará un monto estandarizado, por una cantidad de fotos y vídeos pactados y que se podrán hacer en un corto tiempo. 
+
